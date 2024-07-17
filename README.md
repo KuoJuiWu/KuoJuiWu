@@ -9,7 +9,7 @@
 
 - 👯 I’m looking forward to study in **Physics, Astrophysics or Astronomy field**
 
-- 📫 How to reach me **40841228s@gapps.ntnu.edu.tw**
+- 📫 How to reach me **kuojuiw@gmail.com**
 
 <p align="left">
 </p>
